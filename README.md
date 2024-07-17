@@ -8,9 +8,3 @@
 
 ⛧ INTERACT if you like : Metalocalypse, Creepypasta, Horror, Homestuck, Dead By Daylight, Marvel/DC/Image/Etc Comics, Mortal Kombat, Overwatch, Apex Legends...
 ⛧ DNI if : You're a chronically online puritan. I'm not about to be walking on eggshells for you. Just don't be a weirdo.
-
-⛧ He/Him only
-⛧ Eng/Esp
-⛧ 22 (Nov 13)
-
-⛧ Discord is theonehellspawn
