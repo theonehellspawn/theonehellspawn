@@ -7,4 +7,5 @@
 ⛧ I don't do much besides sit around alone, though that doesn't mean I'm not open to talking. I may be editting or creating, so shoot me a whisper for a gaurenteed response!
 
 ⛧ INTERACT if you like : Metalocalypse, Creepypasta, Horror, Homestuck, Dead By Daylight, Marvel/DC/Image/Etc Comics, Mortal Kombat, Overwatch, Apex Legends...
+
 ⛧ DNI if : You're a chronically online puritan. I'm not about to be walking on eggshells for you. Just don't be a weirdo.
