@@ -3,10 +3,10 @@
 
 ⛧°。 ⋆༺♱༻⋆。 °⛧ hello ⛧°。 ⋆༺♱༻⋆。 °⛧
 
-⛧ Most likely, you found me on PonyTown. You'll see me sitting around as mostly Cosplay ponies, like (but not limited to) Jeff the Killer, Rob Zombie, Magnus Hammersmith, Penguin, etc...
+⛧ most likely, you found me on ponytown. you'll see me sitting around as mostly cosplay ponies, like (but not limited to) jeff the killer, rob zombie, magnus hammersmith, longlegs, etc...
 
-⛧ I don't do much besides sit around alone, though that doesn't mean I'm not open to talking. I may be editting or creating, so shoot me a whisper for a gaurenteed response!
+⛧ i don't do much besides sit around alone, though that doesn't mean i'm not open to talking. i may be editting or creating, so shoot me a whisper for a gaurenteed response!
 
-⛧ INTERACT if you like : Metalocalypse, Creepypasta, Horror, Homestuck, Dead By Daylight, Marvel/DC/Image/Etc Comics, Mortal Kombat, Overwatch, Apex Legends...
+⛧ INTERACT if you like : metalocalypse, rreepypasta, ANY horror, homestuck, dead by daylight, marvel/dc/image/etc comics, mortal kombat, overwatch, apex legends...
 
-⛧ DNI if : You're a chronically online puritan. I'm not about to be walking on eggshells for you. Just don't be a weirdo.
+⛧ DNI if : you're a chronically online puritan. i'm not about to be walking on eggshells for you. just don't be a weirdo! :P
